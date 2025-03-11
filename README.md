@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thekingofbling7
+- 👋 Hi, I’m @thekingofbling7, the pirate queen yarr
 - 👀 I’m interested in computer science as a whole but mostly cyber sec and hardware
 - 🌱 I’m currently learning computer science in college
 - 📫 Find me on twitter (x or whatever its called) @Ambonerr
